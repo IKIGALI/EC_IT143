@@ -1,1 +1,1 @@
-Adding deliverable W3.4
+Adding deliverable W3.4.
